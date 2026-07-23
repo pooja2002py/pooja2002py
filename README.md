@@ -16,7 +16,7 @@ Swami Ramanand Teerth Marathwada University *(2023–2025)*
 📊 **73%**
 
 🎓 **Bachelor of Science (Computer Science)**
-Lal Bahadur Shastri Mahavidyalaya *(2020–2023)*
+Lal Bahadur Shastri Mahavidyalaya *(2021–2023)*
 📊 **75.66%**
 
 ---
